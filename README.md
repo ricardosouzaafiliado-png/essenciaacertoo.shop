@@ -1,0 +1,1 @@
+# essenciaacertoo.shop
